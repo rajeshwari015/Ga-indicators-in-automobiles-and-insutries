@@ -1,1 +1,1 @@
-# Ga-indicators-in-automobiles-and-insutries
+# Gas-indicators-in-automobiles-and-industries
